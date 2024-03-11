@@ -1,5 +1,5 @@
 
-- 📫 How to reach me: Connect with me on [LinkedIn](https://www.linkedin.com/in/aaryan-sinha-11346a205/) and you can go through my [Portfolio](https://aaryansinha15.github.io/) 
+
 
 
 <h1 align="center">Hi 👋, I'm Aaryan Sinha</h1>
