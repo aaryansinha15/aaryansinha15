@@ -15,7 +15,7 @@
 
 - 💬 Ask me about **My day Please🥱!!**
 
-- - 📫 How to reach me: Connect with me on [LinkedIn](https://www.linkedin.com/in/aaryan-sinha-11346a205/) and you can go through my [Portfolio](https://aaryansinha15.github.io/) 
+- 📫 How to reach me: Connect with me on [LinkedIn](https://www.linkedin.com/in/aaryan-sinha-11346a205/) and you can go through my [Portfolio](https://aaryansinha15.github.io/) 
 
 <!-- - 📄 Know about my experiences [https://drive.google.com/file/d/1ALFIlzhfCqOuS1c_IW371aE5Q6GHolic/view](https://drive.google.com/file/d/1ALFIlzhfCqOuS1c_IW371aE5Q6GHolic/view) -->
 
